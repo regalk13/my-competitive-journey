@@ -1,1 +1,1 @@
-# my-competitive-journey
+# My Competitive Journey
